@@ -1,4 +1,4 @@
 # practice
 practice commands
 <br>
-danial
+danial ahamd ka bhai
